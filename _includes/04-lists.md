@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. hipster coffee
+2. Cryptonomicon
+3. Karl Marlantes
